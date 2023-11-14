@@ -1,1 +1,0 @@
-# IT Army of Ukraine
